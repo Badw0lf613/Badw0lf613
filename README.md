@@ -17,11 +17,7 @@
 
 - 📝 I regularly write articles on [https://badw0lf613.github.io/](https://badw0lf613.github.io/)
 
-- 💬 My wechat **yaoshiyue_2000**
-
-- 📫 How to reach me **badwolf613@outlook.com**
-
-- 📄 Know about my experiences [https://github.com/Badw0lf613/myResume](https://github.com/Badw0lf613/myResume)
+- 📫 How to reach me **ysyzp2024@163.com**
 
 - ⚡ mbti **INFJ**
 
